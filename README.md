@@ -14,5 +14,5 @@
 ## **Liens externes**
 
 -  [On vise le radiant](https://tracker.gg/valorant/profile/riot/Stoneeuuhh%230001/overview?season=all)
--  [NE PAS CLIQUER](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-<span style="color:blue">some *blue* text</span>.
+-  <span style="color:red">[NE PAS CLIQUER]text</span>(https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+ 
