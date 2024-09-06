@@ -13,3 +13,6 @@ AUCUNE JE SUIS UNE GROSSE MERDE
 
 ## 📅 **Projets en cours**
 Je travaille actuellement sur plusieurs petits projets pour consolider mes compétences. 
+
+## **Liens externes**
+[top 26 bow kills sur jartex](https://stats.jartexnetwork.com/player/matthias789/bedwars)
