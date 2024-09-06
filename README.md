@@ -16,3 +16,5 @@ Je travaille actuellement sur plusieurs petits projets pour consolider mes comp√
 
 ## **Liens externes**
 [top 26 bow kills sur jartex](https://stats.jartexnetwork.com/player/matthias789/bedwars)
+[On vise le radiant](https://tracker.gg/valorant/profile/riot/Stoneeuuhh%230001/overview?season=all)
+[NE PAS CLIQUER](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
