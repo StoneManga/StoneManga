@@ -7,14 +7,16 @@
 
 ## 🔧 **Compétences actuelles**
 
-AUCUNE JE SUIS UNE GROSSE MERDE
+...
 
 ---
 
 ## 📅 **Projets en cours**
 Je travaille actuellement sur plusieurs petits projets pour consolider mes compétences. 
 
+---
+
 ## **Liens externes**
-[top 26 bow kills sur jartex](https://stats.jartexnetwork.com/player/matthias789/bedwars)
-[On vise le radiant](https://tracker.gg/valorant/profile/riot/Stoneeuuhh%230001/overview?season=all)
+[top 26 bow kills sur jartex](https://stats.jartexnetwork.com/player/matthias789/bedwars)<br>
+[On vise le radiant](https://tracker.gg/valorant/profile/riot/Stoneeuuhh%230001/overview?season=all)<br>
 [NE PAS CLIQUER](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
